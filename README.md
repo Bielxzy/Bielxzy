@@ -1,6 +1,6 @@
 Ola meus amigos
 
-davidaisukeOG é um repositório ✨ especial ✨
+Bielxzy é um repositório ✨ especial ✨
 
     Localizaçâo:📍Curitiba-PR
     Instagram: @Biel.xzy7
