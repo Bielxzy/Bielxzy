@@ -7,6 +7,6 @@ Bielxzy é um repositório ✨ especial ✨
     📫 Como entrar em contato comigo: gabriel.erzinger@escola.pr.gov.br
     Idade: 14 anos
 
-Aqui está um dos meus [PROJETOS]( [PROJETOS](https://editor.p5js.org/davi.gorges/full/qP5ygVvqk)
+Aqui está um dos meus [PROJETOS](https://editor.p5js.org/gabriel.erzinger/full/ufLb4twhO)
 
-https://tenor.com/pt-BR/view/neymar-neymar-jr-neymar-junior-neyney-neymi-gif-13352252802770326814
+![](https://media1.tenor.com/m/uUy7LkxW1R4AAAAd/neymar-neymar-jr.gif)
